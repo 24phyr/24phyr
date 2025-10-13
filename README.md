@@ -1,2 +1,1 @@
-I suck at coding, but since you're here enjoy this
-https://www.youtube.com/watch?v=K7dcSr04G8s
+J'en ai marre d'en avoir marre
